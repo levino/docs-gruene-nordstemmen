@@ -17,7 +17,7 @@ benötigen 12.
 ### Potential
 
 Bei der
-[Gemeindewahl 2026](https://wahlen.kreis-hi.de/wahlen/20210912/03254026/praesentation/)
+[Gemeindewahl 2021](https://wahlen.kreis-hi.de/wahlen/20210912/03254026/praesentation/)
 ergibt sich folgende Übersicht:
 
 | Partei | Wählende | Mitglieder | Verhältnis |
