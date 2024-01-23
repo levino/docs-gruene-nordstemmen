@@ -10,7 +10,7 @@ wird.
 
 ## Bestandsaufnahme
 
-Wir haben zur Zeit 10 Mitglieder, davon sind 10 aktiv. Als Kandidat:innen für
+Wir haben zur Zeit 11 Mitglieder, davon sind 8 aktiv. Als Kandidat:innen für
 den Gemeinderat und die Ortsräte stehen 4 Personen zur Verfügung. Wir
 benötigen 12.
 
